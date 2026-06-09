@@ -1,4 +1,4 @@
-#  
+#  adopt me Scripts advanced offers the most advanced adopt me Script, with auto-heal and undetectable. Perfect for dominating any match.
 
 
 
